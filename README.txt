@@ -1,1 +1,1 @@
-asdfqwertestreadmefile
+asdfqwer
